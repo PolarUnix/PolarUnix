@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: By Discord (username: polarunix), By YouTube (search PolarUnix)
 - 😄 Pronouns: he/him
+-  ♂️ Gender: Male (straight)
 - ⚡ Fun fact: A flood, in the right conditions, can freeze over. This is called a "flash freeze", even though it's not really that fast.
 - ⚡ Fun fact 2: The Tokyo Skytree is the tallest tower ever built. But it can be even taller thanks to thermal expansion during the summer, becoming taller by about 15.2 centimeters.
 <!---
